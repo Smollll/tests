@@ -1,1 +1,1 @@
-# tests
+kalbo masamang tao
